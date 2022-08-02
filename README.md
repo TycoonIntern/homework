@@ -1,1 +1,1 @@
-This readMe sucks
+This readMe is awesome
